@@ -1,1 +1,1 @@
-This is simple websites at the Institute
+This is simple websites at the universite
